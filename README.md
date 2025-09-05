@@ -12,5 +12,4 @@ Nous croyons que chaque mère mérite d’être écoutée, soutenue et valorisé
 
 Parce qu’une mère en bonne santé mentale, c’est une famille équilibrée et une société plus forte.
 
-💡 On peut aussi créer un slogan accrocheur pour ton site. Par exemple :
-✨ "Mamabara Espoirs – briser le silence retrouver la lumiere
+ "Mamabara Espoirs – briser le silence retrouver la lumiere
